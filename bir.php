@@ -1,1 +1,1 @@
-nima gaplar
+nima 
