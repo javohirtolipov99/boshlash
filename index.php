@@ -1,1 +1,2 @@
 salom yuklandi
+tugadi
